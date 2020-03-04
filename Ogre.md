@@ -1,1 +1,1 @@
-Woah there buddy, what do you mean yadda yadda?
+Grendel was very clearly a clear figure in the fight for Ogre rights. 
